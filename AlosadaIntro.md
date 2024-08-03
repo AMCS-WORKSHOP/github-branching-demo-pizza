@@ -19,5 +19,5 @@ Nice to meet you! I hope you have a great day ahead, and if not, I hope you have
 Feel free to reach out to me for any collaboration or just to say hi!
 
 ## Connect with Me
-[LinkedIn](https://www.linkedin.com/in)
+[LinkedIn-Hernah](https://www.linkedin.com/in/hernah-alosada/)
 
